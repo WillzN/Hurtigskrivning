@@ -1,0 +1,2 @@
+# Hurtigskrivning
+Hurtigskrivning
